@@ -1,4 +1,5 @@
 # **Luciano Z. Flores**
+[Photo of me](Photo-GPGN229.jpeg)
 Student in Colorado School of Mines since 2024.
 - luciano_zurbiaflorestroccoli@mines.edu
 - Golden, CO
